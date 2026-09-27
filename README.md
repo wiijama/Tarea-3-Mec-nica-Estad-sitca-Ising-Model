@@ -1,0 +1,1 @@
+# Tarea-3-Mec-nica-Estad-sitca-Ising-Model
